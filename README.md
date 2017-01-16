@@ -1,2 +1,0 @@
-# jagatveersingh.github.io
-resume
